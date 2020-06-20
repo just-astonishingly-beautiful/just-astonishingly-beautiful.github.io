@@ -26,3 +26,5 @@ If you decline my grand designs, in your cowardice, you owe me nothing, of cours
 I suggest $512 / room-defining idea; $64 / minor touch. (Only the ideas you actually take! Only after the room is complete!) If you are as fabulously wealthy in funds as I know you are in spirit, I suppose my work may be worth more to you! I do not manage installations—I only sell ideas and, when appropriate, url links to materials and furniture. Managing installations... what if I *messed it up*?
 
 One final point that *cannot* be belabored: I may suggest you exhibit a particular Sol LeWitt drawing. These are, of course, free. They are straightforward to draw yourself. To anyone who has purchased a Certificate of Authenticity for a Sol LeWitt drawing, I ask you this: have you *even* read Walter Benjamin’s *The Work of Art in the Age of Mechanical Reproduction?* A Sol LeWitt certificate is the antithesis of a Sol LeWitt work. What are you doing?
+
+My scholarly work may be found [here](michael-k-cohen.com).

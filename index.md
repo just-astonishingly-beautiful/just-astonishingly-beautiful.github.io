@@ -7,7 +7,7 @@ It’s not hard to compose a room that will uplift you. Any one of these would d
 * An angled mirror outside the window, pointing up to the sky.
 * A demin wall, a wall of denim, used denim, from Goodwill.
 * A waterfall coming out of the keys of an old piano, apparently playable from stepping stones on a koi pond.
-* Four (comfortable) sage green toilets around a coffee table. Not attached to plumbing, dear lord.
+* Four (comfortable) sage green toilets around a clear glass table. Not attached to plumbing, of course. You can't attach tables to plumbing.
 * Fifty oil lamps. 50.
 * “Of course” painted in pure white on your inoffensive off-white walls.
 

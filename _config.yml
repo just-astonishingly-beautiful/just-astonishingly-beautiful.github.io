@@ -1,2 +1,5 @@
 theme: jekyll-theme-tactile
 title: not-antique-not-modern-chic-just-astonishingly-beautiful
+
+plugins:
+  - jekyll-seo-tag

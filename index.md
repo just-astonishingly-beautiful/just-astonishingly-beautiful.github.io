@@ -9,7 +9,7 @@ It’s not hard to compose a room that will uplift you. Any one of these would d
 * A waterfall coming out of the keys of an old piano, apparently playable from stepping stones on a koi pond.
 * Four (comfortable) sage green toilets around a coffee table. Not attached to plumbing, dear lord.
 * Fifty oil lamps. 50.
-* “Of course” painted in pure white, on your inoffensive off-white walls.
+* “Of course” painted in pure white on your inoffensive off-white walls.
 
 My name is Michael K. Cohen.
 

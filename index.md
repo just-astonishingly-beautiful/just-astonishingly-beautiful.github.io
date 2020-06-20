@@ -1,4 +1,4 @@
-<head><link rel="shortcut icon" type="image/png" href="/favicon.png"></head>
+<link rel="shortcut icon" type="image/png" href="/favicon.png">
 # not-antique-not-modern-chic-just-astonishingly-beautiful
 *an interior decorating firm*
 

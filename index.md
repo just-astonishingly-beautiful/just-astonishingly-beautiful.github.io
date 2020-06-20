@@ -1,4 +1,4 @@
-<link rel="shortcut icon" type="image/png" href="{{ "/favicon.png" | prepend: site.baseurl }}" >
+<head><link rel="shortcut icon" type="image/png" href="{{ "/favicon.png" | prepend: site.baseurl }}" ></head>
 
 # not-antique-not-modern-chic-just-astonishingly-beautiful
 *an interior decorating firm*

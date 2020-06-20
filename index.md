@@ -3,7 +3,7 @@
 
 It’s not hard to compose a room that will uplift you. Any one of these would do:
 
-* A wall covered in fake ivy—it’s not trying to be real ivy—it doesn’t care, and the wall is International Orange, the color of the Golden Gate Bridge, but you can hardly see it.
+* A wall covered in fake ivy—it’s not trying to be real ivy; it doesn't care—and the wall is International Orange, the color of the Golden Gate Bridge, but you can hardly see it.
 * An angled mirror outside the window, pointing up to the sky.
 * A demin wall, a wall of denim, used denim, from Goodwill.
 * A waterfall coming out of the keys of an old piano, apparently playable from stepping stones on a koi pond.

@@ -1,5 +1,3 @@
-<link rel="shortcut icon" type="image/x-icon" href="favicon.png">
-
 # not-antique-not-modern-chic-just-astonishingly-beautiful
 *an interior decorating firm*
 

@@ -28,4 +28,4 @@ If you are as fabulously wealthy in funds as I know you are in spirit, I suppose
 
 One final point that *cannot* be belabored: I may suggest you exhibit a particular Sol LeWitt drawing. These are, of course, free. They are straightforward to draw yourself. To anyone who has purchased a Certificate of Authenticity for a Sol LeWitt drawing, I ask you this: have you *even* read Walter Benjamin’s *The Work of Art in the Age of Mechanical Reproduction?* A Sol LeWitt certificate is the antithesis of a Sol LeWitt work. What are you doing?
 
-If, by some absurd sequence of events, you have landed here buscando my scholarly work, allow me to [redirect you](michael-k-cohen.com).
+If, by some absurd sequence of events, you have landed here buscando my scholarly work, allow me to [redirect you](https://www.michael-k-cohen.com).

@@ -6,6 +6,8 @@
 # not-antique-not-modern-chic-just-astonishingly-beautiful
 *an interior decorating firm*
 
+HERE?
+
 It’s not hard to compose a room that will uplift you. Any one of these would do:
 
 * A wall covered in fake ivy—it’s not trying to be real ivy—it doesn’t care, and the wall is International Orange, the color of the Golden Gate Bridge, but you can hardly see it.

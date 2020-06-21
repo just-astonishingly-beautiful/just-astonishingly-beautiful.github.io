@@ -12,7 +12,7 @@ It’s not hard to compose a room that will uplift you. Any one of these would d
 * A demin wall, a wall of denim, used denim, from Goodwill.
 * A waterfall coming out of the keys of an old piano, apparently playable from stepping stones on a koi pond.
 * Four (comfortable) sage green toilets around a clear glass table. Not attached to plumbing, of course. You can't attach tables to plumbing, goon.
-* Fifty oil lamps. 50.
+* Fifty oil lamps. 50. (Costs $182 on Alibaba)
 * “Of course” painted in pure white on your inoffensive off-white walls.
 
 My name is Michael K. Cohen.

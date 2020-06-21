@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 # not-antique-not-modern-chic-just-astonishingly-beautiful
 *an interior decorating firm*
 
